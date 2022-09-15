@@ -1,0 +1,1 @@
+<img src="2022-09-04_085506.png" width=50% align="middle"><img src="2022-09-04_085601.png" width=50% align="middle"><img src="2022-09-04_085627.png" width=50% align="middle"><img src="2022-09-04_085652.png" width=50% align="middle"><img src="Задание_1.png" width=50% align="middle">
